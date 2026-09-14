@@ -1,1 +1,2 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CD0C6E&center=true&vCenter=true&width=435&lines=HELP+ME+BECOME+SOMEBODY+ELSE;I+WANNA+FUCK+YOU+LIKE+AN+ANIMAL;I+WANNA+FEEL+YOU+FROM+THE+INSIDE;MY+WHOLE+EXISTENCE+IS+FLAWED;YOU+GET+ME+CLOSER+TO+GOD)](https://git.io/typing-svg)
+<br><p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CD0C6E&center=true&vCenter=true&width=435&lines=HELP+ME+BECOME+SOMEBODY+ELSE;I+WANNA+FUCK+YOU+LIKE+AN+ANIMAL;I+WANNA+FEEL+YOU+FROM+THE+INSIDE;MY+WHOLE+EXISTENCE+IS+FLAWED;YOU+GET+ME+CLOSER+TO+GOD)](https://git.io/typing-svg)
+<br><p align="center">${\textsf{\color{#CD0C6E}wippy work in progres hi}}$
