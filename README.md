@@ -4,5 +4,4 @@
 <br><p align="center">${\textsf{\color{#ff6bbd}╰─────────╮♡╭─────────╯}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/5c139e0c8013409892021a802a4e5efa/fecbcebcddfc530b-30/s75x75_c1/b507484e1056f7356499e21e02054b37ca6db05b.gifv"/>${\textsf{\color{#ff6bbd}๑　꒰　　Shadz / Xander　𓂂 ֯　𐦯}}$
 <br><p align="center">${\textsf{\color{#ff6bbd}17　　︶𓏼　　fictkin　selfshipper　』}}$
-<br><p align="center">${\textsf{\color{#ff6bbd} 𓈒 ˙ 　He / Him　Male}}$ <img src="https://64.media.tumblr.com/cbbb20c06105c9e968dc7822669b495f/f7483cd85c02932a-8f/s75x75_c1/e74be335129fe466c0dfa7a4a6d136950cdf55d6.gifv"/> ${\textsf{\color{#ff6bbd}𓈒ৎ}}$  
-<br><p align="center">${\textsf{\color{#ff6bbd}c+h always , w2i pls !}}$
+<br><p align="center">${\textsf{\color{#ff6bbd} 𓈒 ˙ 　He / Him　Male}}$ <img src="https://64.media.tumblr.com/cbbb20c06105c9e968dc7822669b495f/f7483cd85c02932a-8f/s75x75_c1/e74be335129fe466c0dfa7a4a6d136950cdf55d6.gifv"/> ${\textsf{\color{#ff6bbd}𓈒ৎ}}$<br><p align="center">${\textsf{\color{#ff6bbd}c+h always , w2i pls !}}$
